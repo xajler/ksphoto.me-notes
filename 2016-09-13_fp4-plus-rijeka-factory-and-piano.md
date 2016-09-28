@@ -1,4 +1,4 @@
-# September 10, Rijeka and Piano
+# FP4+: Rijeka, Factory and Piano
 
 > Contact Sheet photo
 
